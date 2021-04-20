@@ -1,0 +1,2 @@
+# Mini_manual_project_Shraddhasakat-
+Mini_manual_project
